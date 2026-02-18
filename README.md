@@ -1,3 +1,3 @@
 # newrepo
 random :) 
-author - diya bajoria
+author - diya bajoria (24bai0133)
